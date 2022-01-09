@@ -1,1 +1,1 @@
-# _www.TecnologyComputer.com
+# www.Tecnologi.Computer.com
